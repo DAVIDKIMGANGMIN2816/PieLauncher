@@ -1,4 +1,12 @@
-# Privacy Policy
+상품정보
+5G 지원여부
+5G Support
+가전 모델
+갤럭시점프
+휴대폰 통신사
+공기계
+쿠팡상품번호
+7799776622 - 25437951300# Privacy Policy
 
 Pie Launcher does not collect any personal information.
 
